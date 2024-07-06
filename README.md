@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Aiden
+- 👀 I’m interested in roblox coding and potientally get better at it
+- 🌱 I’m currently learning animation and SFX
+- 💞️ I’m looking to collaborate on a lot of games
+- 📫 You can reach me on discord aiden.wav
+- 😄 Pronouns: They/Them
+- ⚡ Fun fact: I'm trans
