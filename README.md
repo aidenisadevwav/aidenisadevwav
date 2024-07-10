@@ -3,5 +3,5 @@
 - 🌱 I’m currently learning animation and SFX
 - 💞️ I’m looking to collaborate on a lot of games
 - 📫 You can reach me on discord aiden.wav
-- 😄 Pronouns: He.Hun
+- 😄 Pronouns: He/Him (call me a good boy and hun/honey)
 - ⚡ Fun fact: I'm learning blender andihavebadwritingidontknowhowtospellcorrectly
