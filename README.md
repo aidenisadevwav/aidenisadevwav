@@ -1,7 +1,7 @@
-- 👋 Hi, I’m Aiden
+- 👋 Hi, I’m null
 - 👀 I’m interested in roblox coding and potientally get better at it
 - 🌱 I’m currently learning animation and SFX
 - 💞️ I’m looking to collaborate on a lot of games
-- 📫 You can reach me on discord aiden.wav
-- 😄 Pronouns: He/Him (call me a good boy and hun/honey)
+- 📫 You can reach me on discord null.mp4
+- 😄 Pronouns: They/Them (call me a good girl and hun/honey)
 - ⚡ Fun fact: I'm learning blender andihavebadwritingidontknowhowtospellcorrectly
